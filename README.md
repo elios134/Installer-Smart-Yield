@@ -1,4 +1,4 @@
-# 🚀 Mon Application Super Géniale
+# 🚀 Smart-Yield
 
 Bienvenue sur la page de téléchargement officielle !
 
